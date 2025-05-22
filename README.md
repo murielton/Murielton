@@ -16,7 +16,7 @@ amo meus filhos
 ![image](https://github.com/user-attachments/assets/e785f0c8-20fb-4ea2-9a59-85d7df213624)
 ![image](https://github.com/user-attachments/assets/4eb66b76-7cfa-486b-ae23-905896cc5d93)
 ![image](https://github.com/user-attachments/assets/99d4724b-e1ba-424b-9ffb-d4dd91043001)
-![image](https://github.com/user-attachments/assets/b647c903-89d4-4d95-8818-a97b2e97450f)
+
 
 
 
